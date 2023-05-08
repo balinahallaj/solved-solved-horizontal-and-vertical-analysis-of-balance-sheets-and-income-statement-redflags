@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-horizontal-and-vertical-analysis-of-balance-sheets-and-income-statement-redflags
+<br>
+2. Using the financial statements from the company you chose, prepare three years of horizontal and vertical analysis of balance sheets and income statement. Add the ratios and interpretation from question one above. From the above information generated ( ratio analysis and horizontal and vertical analysis of balance and income statements) prepare a one page analysis of potential red flags.
